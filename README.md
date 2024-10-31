@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EduardoSilva2202
+- 👋 Hi, I’m @EduardoSilva.
 - 👀 I’m interested in a career with TECH!
 - 🌱 I’m currently learning a little bit of everything.
 - 💞️ I’m looking to collaborate on bit of tech
